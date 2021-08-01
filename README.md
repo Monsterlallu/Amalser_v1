@@ -44,7 +44,7 @@ By establishing the Asena, you are deemed to have accepted these responsibilitie
 ## Developers
   <div align="center">
     
-  [![Amalser](<img src=https://www.linkpicture.com/q/Monster_fake-20210801_144150.jpg>
+  [![MONSTER LALLU](<img src=https://www.linkpicture.com/q/Monster_fake-20210801_144150.jpg>
  https://github.com/Amalser_v1 |  
 ----|
 [Monsterlallu](https://github.com/Amalser_v1)  |
